@@ -1,1 +1,0 @@
-# FYD Formulation (site publié)
